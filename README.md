@@ -1,2 +1,2 @@
-# Wallpapers
-Wallpapers designed by Zorm Industries
+# Artwork
+Wallpapers and Artwork designed by Zorm Industries
